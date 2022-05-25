@@ -1,0 +1,2 @@
+- 👋 Hi, I’m  Simone Cisca - alias - @SpaceCowboyS01,
+- I'm Sicilian🍋 and I am currently studying [Computer Science](https://computerscience.unicam.it/) at the [University of Camerino](https://www.unicam.it/) .
